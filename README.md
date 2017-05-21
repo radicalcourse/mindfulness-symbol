@@ -1,6 +1,6 @@
 ## Mindfulness symbol ##
 
-In our contemporary culture people are addicted to thinking. They are constantly dwelling on the past or worrying about the future. This habit of endless thinking tremendously decreases their quality of life and is the main cause of most of the problems.
+In our contemporary world people are addicted to thinking. They are constantly dwelling on the past or worrying about the future. This habit of endless thinking tremendously decreases their quality of life and is the main cause of most of the problems.
 
 > Your mind is an instrument, a tool. It is there to be used for a specific task, and when the task is completed, you lay it down. As it is, I would say about 80 to 90 percent of most people’s thinking is not only repetitive and useless, but because of its dysfunctional and often negative nature, much of it is also harmful. Observe your mind and you will find this to be true. It causes a serious leakage of vital energy. 
 – Eckhart Tolle
