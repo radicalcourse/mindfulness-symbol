@@ -44,14 +44,16 @@ You can download high quality files from this GitHub repository.
 
 ## About the project ##
 
-In [radicalcourse.org](https://radicalcourse.org) page you will find two visual symbols for **Mindfulness** and **Oneness**.
+[Radicalcourse](https://radicalcourse.org) is a movement with the purpose to design a good life based on the two foundational ideas – **Mindfulness** and **Oneness**.
 
-These symbols can be used freely. They can not be protected as commercial trademarks. They are open-sourced and belong to everyone.
+These ideas are contrary to the popular beliefs that are currently held in our collective consciousness. That is why the course is radical - it is based on the essentially different foundations.
 
-When used, the symbols should keep their original meaning and communicate the message about Mindfulness and Oneness.
+The two ideas here are expressed as visual symbols. The symbols carry the meaning - they remind, inspire and help people to spread the message about this new way of living.
 
-These symbols were designed during a period of 2 years by graphic designer from Lithuania. The purpose of these symbols is to make the world a better place by spreading the message about the two universal, foundational truths – Mindfulness and Oneness.
+These symbols can be used freely. They cannot be protected as commercial trademarks. They are open-sourced and belong to everyone.
 
-A lot of people have already used these symbols in many different ways. You can see more pictures on our [Tumblr](https://radicalcourse.tumblr.com/) page. Send your pictures to the email address that is provided at the bottom of [radicalcourse.org](https://radicalcourse.org) page.
+The purpose of these symbols is to make the world a better place by spreading the message about the two universal, foundational truths – Mindfulness and Oneness.
+
+A lot of people are already using these symbols in many different ways. See how on our [Tumblr](https://radicalcourse.tumblr.com/) page. Send your pictures to the email address that is provided at the bottom of [radicalcourse.org](https://radicalcourse.org) page.
 
 Spread the message.
